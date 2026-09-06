@@ -9,6 +9,6 @@ Hey there! 👋 Thanks for checking out my profile! I'm Harsha and I'm all about
 
 Let's keep life balanced, both on and off the field! 🎮🌟
 
-✉️ Let's connect! Feel free to drop me a line at v.harsha.sagar006@gmail.com
+
 
 Looking forward to connecting and diving into the world of data with you! 📊🔢
